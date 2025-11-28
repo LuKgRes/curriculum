@@ -1,1 +1,2 @@
-Lucas 
+Lucas Soares
+Taquara RS
